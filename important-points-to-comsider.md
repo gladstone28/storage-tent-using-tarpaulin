@@ -14,45 +14,45 @@
 
 2. Tarpaulin Selection
 
-Heavy-duty PVC tarpaulin is the best for durability, waterproofing, and UV protection.
+- Heavy-duty PVC tarpaulin is the best for durability, waterproofing, and UV protection.
 
-Polyethylene tarps (cheaper) can work, but may degrade faster in sun and rain.
+- Polyethylene tarps (cheaper) can work, but may degrade faster in sun and rain.
 
-Choose a thickness of at least 200–300 gsm for outdoor use.
+- Choose a thickness of at least 200–300 gsm for outdoor use.
 
 3. Design Options
 
-A-frame or gable roof style: simple, sheds water easily.
+- A-frame or gable roof style: simple, sheds water easily.
 
-Dome or hoop style: good for strength against wind.
+- Dome or hoop style: good for strength against wind.
 
-Flat-roof style: easier to build, but prone to water pooling.
+- Flat-roof style: easier to build, but prone to water pooling.
 
 4. Anchoring
 
-Proper anchoring is crucial for safety. Options include:
+- Proper anchoring is crucial for safety. Options include:
 
-Ground stakes or auger anchors.
+	- Ground stakes or auger anchors.
 
-Concrete footings or blocks.
+	- Concrete footings or blocks.
 
-Sandbags or water barrels (if you want mobility).
+	- Sandbags or water barrels (if you want mobility).
 
 5. Ventilation & Moisture Control
 
-Storage tents can trap heat and moisture, which may damage items.
+- Storage tents can trap heat and moisture, which may damage items.
 
-Add vents, mesh windows, or a raised floor to improve airflow.
+- Add vents, mesh windows, or a raised floor to improve airflow.
 
 6. Uses
 
-Temporary storage for tools, equipment, or building materials.
+- Temporary storage for tools, equipment, or building materials.
 
-Agricultural storage (hay, feed, seedlings).
+- Agricultural storage (hay, feed, seedlings).
 
-Vehicle or boat shelter.
+- Vehicle or boat shelter.
 
-Emergency relief or community use.
+- Emergency relief or community use.
 
 ✅ Conclusion: Yes, it’s very possible. A tarpaulin storage tent can be affordable, flexible, and durable if you use the right materials and anchoring.
 
