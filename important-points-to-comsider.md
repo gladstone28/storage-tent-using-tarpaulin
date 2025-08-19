@@ -12,7 +12,7 @@
 
 	- Wooden poles (accessible, but may warp or rot over time).
 
-2. Tarpaulin Selection
+**2. Tarpaulin Selection**
 
 - Heavy-duty PVC tarpaulin is the best for durability, waterproofing, and UV protection.
 
@@ -20,7 +20,7 @@
 
 - Choose a thickness of at least 200–300 gsm for outdoor use.
 
-3. Design Options
+**3. Design Options**
 
 - A-frame or gable roof style: simple, sheds water easily.
 
@@ -28,7 +28,7 @@
 
 - Flat-roof style: easier to build, but prone to water pooling.
 
-4. Anchoring
+**4. Anchoring**
 
 - Proper anchoring is crucial for safety. Options include:
 
@@ -38,13 +38,13 @@
 
 	- Sandbags or water barrels (if you want mobility).
 
-5. Ventilation & Moisture Control
+**5. Ventilation & Moisture Control**
 
 - Storage tents can trap heat and moisture, which may damage items.
 
 - Add vents, mesh windows, or a raised floor to improve airflow.
 
-6. Uses
+**6. Uses**
 
 - Temporary storage for tools, equipment, or building materials.
 
