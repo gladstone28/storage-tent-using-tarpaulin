@@ -1,16 +1,16 @@
 
 
-Frame Structure
+**Frame Structure**
 
-You’ll need a strong frame to support the tarpaulin.
+- You’ll need a strong frame to support the tarpaulin.
 
-Common choices:
+- Common choices:
 
-Steel or aluminum tubing (durable and weather resistant).
+	- Steel or aluminum tubing (durable and weather resistant).
 
-PVC pipes (cheaper, but less strong).
+	- PVC pipes (cheaper, but less strong).
 
-Wooden poles (accessible, but may warp or rot over time).
+	- Wooden poles (accessible, but may warp or rot over time).
 
 2. Tarpaulin Selection
 
