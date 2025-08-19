@@ -57,3 +57,5 @@
 ✅ Conclusion: Yes, it’s very possible. A tarpaulin storage tent can be affordable, flexible, and durable if you use the right materials and anchoring.
 
 Would you like me to sketch a simple step-by-step design (with frame + tarp layout) for a practical DIY storage tent?
+
+![](./storage-tent-image.png)
